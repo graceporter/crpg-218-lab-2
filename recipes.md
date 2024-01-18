@@ -136,3 +136,4 @@ Instructions:
 5. In a large bowl, whisk together the eggs, olive oil, water, and vanilla.
 6. Sprinkle the dry mix over the wet mix and stir until just combined.
 7. Pour the batter into the prepared pan (it'll be thick - that's ok) and use a spatula to smooth the top. Bake for 40 to 48 minutes.
+8. enjoy.
